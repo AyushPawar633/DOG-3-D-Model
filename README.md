@@ -1,1 +1,0 @@
-# DOG-3-D-Model
